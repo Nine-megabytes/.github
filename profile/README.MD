@@ -4,5 +4,3 @@
 </p>
 
 **[Join our discord!](https://discord.gg/ebd7DB2)**
-
-[Join our QQ Group](https://qm.qq.com/cgi-bin/qm/qr)
